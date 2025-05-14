@@ -28,6 +28,12 @@ The recommendations for Munich from the Chatchamp team.
 
 - Do a sightseeing bike tour (https://www.mikesbiketours.com/).
 
+## team events
+
+https://pedalhelden.de/
+- ⁠Escape Game
+- ⁠Kickerturnier (https://muenchen.mitvergnuegen.com/2016/11-bars-mit-kicker-in-muenchen/)
+
 ## what to see
 
 - Visit Eisbachwelle.
